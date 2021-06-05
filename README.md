@@ -1,7 +1,6 @@
-uhh i'm wiiz
+wiiz
 ....interested in programming language
-currently learning python and cyber security
-looking to collaborate with nobody...fr
+currently learning python
 ....wiiztrash@icloud.com
 
 <!---
